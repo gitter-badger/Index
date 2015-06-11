@@ -2,8 +2,7 @@
 
 Como todo projeto deve ser iniciado ore nesse momento e peça orientação de Deus e seu Espírito Santo.
 
-> Este é apenas e unicamente um grupo diverço de colaboradores interessados.
-> Este trabalho é voluntário realizado de forma colaborativa.
+> Este é apenas e unicamente um grupo diverso de colaboradores interessados. Este trabalho é voluntário realizado de forma colaborativa.
 
 ## Missão
 Abreviar a volta de Cristo levando a sua mensagem ao mundo.
